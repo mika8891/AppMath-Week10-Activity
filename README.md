@@ -1,2 +1,2 @@
 # AppMath-Week10-Activity
-activity in applied mathematics in games class (week 10)
+Video: https://drive.google.com/file/d/14RVk4ztCj4TziT84ZOO-5T9TQbr7X6-l/view?usp=sharing
